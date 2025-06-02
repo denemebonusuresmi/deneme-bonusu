@@ -7,8 +7,8 @@
     <a href="https://bit.ly/LinkeTiklaGir"><img src="https://resmim.net/cdn/2025/05/13/NqsfB1.gif"></a>
     <p style="text-align:center; font-size:18px; 20px;">
     <div style="font-size:16px; color:#444; max-width:800px; 20px auto;">
-    🎁Kampanyalarımızdan tum kullanıcılarımız yararlanabilir! <br>
-  🤑 Aşağıdaki bağlantıya tıklayarak kampanyalarımıza ulaşabilirsiniz!
+    🎁Kampanyalarımızdan tüm kullanıcılarımız yararlanabilir! <br>
+  🤑 Aşağıdaki bağlantıya tıklayarak güvenilir sitelere ulaşabilirsiniz!
 </div>
   🔗 <strong>Link:</strong>
   <a href="https://bit.ly/LinkeTiklaGir" style="color:#20B2AA; font-weight:bold;">Tıklayınız</a>
