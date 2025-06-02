@@ -2,7 +2,6 @@
     <h1>Deneme Bonusu Veren Siteler - En Güvenilir Siteler</h1>
     <a style=" Boogaloo, sans-serif; font-weight: 400; font-style: normal;color: red;text-decoration: none;" href="https://bit.ly/LinkeTiklaGir"><p>2025 yılında en güvenilir lisanslı deneme bonusu veren siteler, canlı casino, slot, bahis ve bet oyunlarıyla kullanıcılarına hem güvenli hem de kazançlı bir oyun deneyimi sunuyor. Yeni üyeler için sunulan deneme bonusları, kumar tutkunlarının risksiz başlangıç yapmasını sağlarken, yüksek lisans güvencesiyle güvenilir bir altyapı da sunuyor. Bu platformlar, hem eğlenceyi hem de kazancı bir arada arayan oyuncular için ideal bir tercih haline gelmiştir.</p></a>
     <a href="https://bit.ly/LinkeTiklaGir">
-<https://camo.githubusercontent.com/6b891d13074bae0860e8c7af38157cac663f35214014288ba8277e53f3358402/68747470733a2f2f692e6962622e636f2f42325237486a46502f70686f746f2d323032352d30352d32392d32322d31302d34342e6a7067>
     <a href="Fotoğrafın yonlendiriceği linki giriniz"><img class="foto" src="https://d2opxh93rbxzdn.cloudfront.net/original/2X/4/40cfa8ca1f24ac29cfebcb1460b5cafb213b6105.png"></a>
     <p style="max-width:90%; border:3px solid #20B2AA; border-radius:15px; box-shadow:0 0 12px rgba(32,178,170,0.3); 15px 0;">Birden fazla ... için <a href="Link.com">Tıkla Ve Ulaş</a></p>
      <!-- bu kısma gif koyabilirsiniz -->
